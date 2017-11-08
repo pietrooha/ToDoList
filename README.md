@@ -1,9 +1,0 @@
-# MobilnaRejestracjaAndroid
-# OandXGame
-# OandXGame
-# OandXGame
-# OandXGame
-# OandXGame
-# OandXGame
-# OandXGame
-# GraWisielec
